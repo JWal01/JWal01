@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **https://www.linkedin.com/in/jeff-walter-a270004b/**
 
-- ⚡ Fun fact **Love to Mountain Bike!!**
+- ⚡ Fun fact **Love to Mountain Bike and Ski!!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
